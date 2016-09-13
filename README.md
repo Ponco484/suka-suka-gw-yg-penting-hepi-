@@ -1,0 +1,1 @@
+# suka-suka-gw-yg-penting-hepi-
